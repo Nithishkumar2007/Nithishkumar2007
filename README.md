@@ -6,7 +6,7 @@
 
 - ⚡ Fun fact: I know ENGLISH,TAMIL,FRENCH.
 - Social Presence
-<br /> [<img src="https://img.shields.io/badge/Gmail-D14836?style=for-the-badge&logo=gmail&logoColor=white" />] <br />  <br/> [<img src="https://img.shields.io/badge/instagram-d62976?style=for-the-badge&logo=instagram&logoColor=white" />](https://www.instagram.com/invites/contact/?igsh=ehn5xvlzxqfz&utm_content=nftgr5i)
+<br /> [<img src="https://img.shields.io/badge/Gmail-D14836?style=for-the-badge&logo=gmail&logoColor=white" />] (nithishkumarsnithishkumars6@gmail.com) <br />  <br/> [<img src="https://img.shields.io/badge/instagram-d62976?style=for-the-badge&logo=instagram&logoColor=white" />](https://www.instagram.com/invites/contact/?igsh=ehn5xvlzxqfz&utm_content=nftgr5i)
 
 
 
